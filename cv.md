@@ -44,4 +44,4 @@ From january 2020 to april 2022
 
 - English - B1 (according to the English test at UpSkillMe program)
 - Russian - Native
-- Belarusian - Nativ
+- Belarusian - Native
